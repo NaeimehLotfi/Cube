@@ -2,7 +2,7 @@
 
 ****
 
-![slid](https://user-images.githubusercontent.com/124140214/216310678-de0c3444-6244-4899-8818-d45d6dc23196.jpg)
+![cube](https://user-images.githubusercontent.com/124140214/216321264-6487947d-ac81-4188-a878-cac0f293f1e0.jpg)
 
 
 
